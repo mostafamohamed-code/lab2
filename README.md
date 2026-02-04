@@ -1,1 +1,1 @@
-![](https://x.com/cknprEGrGPJOlPt)
+![](https://pbs.twimg.com/media/F48XiUPXkAAZTIT.jpg)
